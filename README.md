@@ -2,7 +2,7 @@
 Bruno Cappellesso Budó - 2312130019
 Davi Mendes Paraiso Carvalho - 2212130041
 Nikolas Silva de Sousa - 2312130089
-Paulo Miguel - 
+Paulo Miguel Gonçalves Dias da Silva - 2312130131
 Rafael Rodrigues Barbosa - 2212130042
 
 Botão de Emergência - App de Locomoção Urbana
